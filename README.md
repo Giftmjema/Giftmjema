@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mostwantes
+- 👋 Hi, I’m @mostwanted
 - 👀 I’m interested in music and football 
 - 🌱 I’m currently doing a job
 - 💞️ I’m looking to collaborate on love affairs 
